@@ -1,1 +1,1 @@
-# Click: [xuaikun.github.io](https://xuaikun.github.io/)
+# Click: [rhinitispatient.github.io](https://rhinitispatient.github.io/)
